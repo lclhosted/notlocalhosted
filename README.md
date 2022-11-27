@@ -5,6 +5,6 @@
 If you are interested in watching me (only the truth is in Russian), then you can visit my telegram and YouTube channel!
 <br>
 Telegram - @neroktg<br>
-Youtube - https://www.youtube.com/c/Nerokk<br>
+YouTube - https://www.youtube.com/c/Nerokk<br>
 Website - nerok-web.github.io (or nerok.ml)<br>
 
