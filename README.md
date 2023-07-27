@@ -12,6 +12,5 @@
 If you are interested in watching me (only the truth is in Russian), then you can visit my telegram and YouTube channel!
 <br>
 Telegram - @neroktg<br>
-YouTube - https://www.youtube.com/c/Nerokk (but it closed)<br>
-Website - no, but will be soon<br>
-
+YouTube - <s>http://www.youtube.com/c/Nerokk</s> (closed)<br>
+Website - in active development<br>
