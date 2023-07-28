@@ -4,7 +4,7 @@
 # danilka
 </div>
 
-- 👋 Hi, I’m danilka. Known as: Nerok.
+- 👋 Hi, I’m danilka. Known as: Nerok, localhosted.
 - 👀 I'm interested in computers, operating systems and more.
 - 🌱 I'm currently learning HTML.
 - 🌍 I now languages: Russian [default], English [30%/100%] and Ukrainian
